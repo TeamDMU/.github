@@ -1,1 +1,2 @@
-![image](https://github.com/TeamDMU/.github/assets/84004751/5e5db94e-8bfc-40b5-8bc2-075631f85476)
+![image](https://github.com/TeamDMU/.github/assets/84004751/8b18eb54-0f13-4c6a-ac66-1b5ae5892584)
+
